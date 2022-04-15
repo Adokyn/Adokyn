@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Adokyn
+- 👀 I’m a software developer
+- 💞️ I’m looking to collaborate on the developer community
+- 📫 You can find my on https://adokyn.com/ and also my accounts as AdokynDev on facebook, instagram and YouTube
